@@ -11,4 +11,3 @@ To get started:
 - I’m looking to collaborate on any Open Source Projects
 - Want to reach out: [here](niyitangasam@gmail.com)
 
-![Profile views](https://gpvc.arturio.dev/Niyitangasam)
